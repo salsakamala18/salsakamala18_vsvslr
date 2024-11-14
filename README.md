@@ -7,3 +7,6 @@ story-life-religius
 
 
 > vsvslr_nididid - [Sahabat Ahza](https://m.youtube.com/@sahabatahza) - 2024_09_23 - [Kisah Nabi Sulaiman Ketika Bertemu Dengan Dajjal Yang Jarang Diceritakan](https://youtu.be/GP9pou0O-nE) <img src="media/GP9pou0O-nE/Screenshot_2024-11-13-16-12-22-70.png">
+
+
+> vsvslr_lididid - [Marhaban](https://m.youtube.com/@mrhaban) - 2023_10_07 - [Akhirnya Saya Baru Paham, Mengapa Raja Zulkarnain Hanya Mengurung Ya’juj dan Ma’juj, Padahal](https://youtu.be/iMOHsDHImSs) <img src="media/iMOHsDHImSs/">
